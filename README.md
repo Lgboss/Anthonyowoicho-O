@@ -1,5 +1,3 @@
-# Anthonyowoicho-O
-My profile 
 Am by name, ONOJA ANTHONY O, an upcoming website developer and a crypto enthusiast ready to strive in both the web3 and developer space.
 I'm open to learning and collaboration
 
